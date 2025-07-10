@@ -1,0 +1,1 @@
+# Syqopat-Kuzey
